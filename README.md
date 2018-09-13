@@ -33,10 +33,8 @@ Todos estos problemas descritos y abordados para el correspondiente analisis se 
 
                                          Principales resultados
                                          
-1). Incremento de los ingresos propios de las instituciones (aumento al cobro de servicios ofrecidos por los docentes)
-
+1). Incremento de los ingresos propios de las instituciones (aumento al cobro de servicios ofrecidos por los docentes:
     - Durante estos años se dio un cambio en la política de ingresos propios de las instituciones, en los últimos años la gran               mayoría de las instituciones han asumido los riesgos y has gozado de los beneficios de buscar un apoyo adicional y                     complementario de los estudiantes. El estado, por su parte, mediante una modificación a la constitución, dejó claro que               asumía la obligación y responsabilidad de la gratuidad únicamente de la educación básica, deslindándose de esta obligación             con respecto a la educación superior y dando así concluido la actividad del artículo tercero constitucional con respecto a              la gratuidad o no de la educación superior pública.
     
- 2). Nueva actitud y relación entre las instituciones públicas y privadas de la educación superior 
- 
+ 2). Nueva actitud y relación entre las instituciones públicas y privadas de la educación superior :
       -De una actitud de recelo, de falta de cooperación y en ocasiones de franca descalificación entre ambos tipos de                         instituciones educativas, han pasado a reconocer la existencia de ambas dando como resultado ventajas de                             complementariedad en las cuales asumen los papeles de desarrollo de proyectos y la conjunción de esfuerzos en empresas de             interés nacional. 
