@@ -39,4 +39,4 @@ Todos estos problemas descritos y abordados para el correspondiente analisis se 
     
  2). Nueva actitud y relación entre las instituciones públicas y privadas de la educación superior 
  
-      -De una actitud de recelo, de falta de cooperación y en ocasiones de franca descalificación entre ambos tipos de                         instituciones educativas, han pasado a reconocer la existencia de ambas dando como resultado ventajas de                             complementariedad en las cuales asumen los papeles de desarrollo de proyectos y la conjunción de esfuerzos en empresas de             interés nacional.
+      -De una actitud de recelo, de falta de cooperación y en ocasiones de franca descalificación entre ambos tipos de                         instituciones educativas, han pasado a reconocer la existencia de ambas dando como resultado ventajas de                             complementariedad en las cuales asumen los papeles de desarrollo de proyectos y la conjunción de esfuerzos en empresas de             interés nacional. 
