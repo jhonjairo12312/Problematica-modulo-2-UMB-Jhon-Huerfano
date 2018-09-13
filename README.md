@@ -16,8 +16,8 @@ El desarrollo y evolución de la educación superior en México en los últimos 
                                                         Objetivo General   
                                                         
 En el desarrollo del presente trabajo se pretenderá abordar algunos de los cambios estructurales perceptibles en el último lustro con referencia principalmente al subsector de las universidades públicas en México y prever algunos de los desafíos que deben enfrentarse en los próximos años.
+
                                            Metodología presente en la investigación
-                                           
 Las universidades públicas presentan diversos problemas que se han gestado a lo largo del tiempo y a su vez estos no surgieron como consecuencia del crecimiento experimentado en la década de los 70 en México, durante este periodo se llegó a un estancamiento originado por la crisis económica que afectó al país desde finales de 1982. Por lo tanto había gran necesidad de cambiar y enfrentar los problemas con nuevas perspectivas y actitudes con el objetivo de unicar los cambios estructurales y económicos generados en los últimos años, y sin la pretensión de realizar un diagnóstico de la educación superior.
 
     I) Reconocimiento de problemas vigentes a fines de 1988
