@@ -50,5 +50,6 @@ Todos estos problemas descritos y abordados para el correspondiente analisis se 
   ¿Nosotros como estudiosos podremos presentar nuestras inconformidades basándonos en el derecho de protesta que se ha reconocido en el artículo 37 de la constitución, sin afectar la población e infraestructura institucional y sin que la universidad presente represarías con los estudiosos por exigir mejores condiciones?
 
  *BIBLIOGRAFIA DEL ARTICULO 
+ 
  López, R. (2018). La universidad, hoy y mañana. Retrieved from https://books.google.es/books?hl=es&lr=&id=ujzWZrNngFQC&oi=fnd&pg=PA211&dq=falta+de+mantenimiento+de+equipos+en+universidades+&ots=vBcnLPe2Hw&sig=Vw30twIAcR_gjHtE05jyvUg11ss#v=onepage&q=falta%20de%20mantenimiento%20de%20equipos%20en%20universidades&f=false
                                    
